@@ -1,6 +1,6 @@
 ### Hi, I'm Chandra 👋
 
-#### A Builder by instinct, Engineer by training, Researcher by curiosity.
+#### A Builder by instinct, Engineer by training and Researcher by curiosity.
 
 ---
 
